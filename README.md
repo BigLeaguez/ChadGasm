@@ -2,17 +2,17 @@
 
 ChadGasm is a 2D exploration platformer set amidst the rising of the Smitty race. When young Joseph Smith Jr. gets visited by Elohim and our Lord and Savior, even Jesus Christ, Chad is awoken with a deep and mysterious thirst for revenge. He follows Joseph through the perils of early Mormonism, conquering his most powerful lackies - the Angel Moroni and the Three Nephites of old - while enscribing upon the sealed portion of the Golden Plates. Now is the time that this holy scripture, comparable to the Book of Mormon, shall be released upon the world.
 
-### Chapter I
+### Chapter I: A Marvelous Work and a Wonder
 
 Chad awakes in a mysterious cave. He travels through the Sacred Grove to Palmyra and witnesses the confusion of the locals who disrespect our most beloved prophet. They murmur about young Joseph's ambitions to obtain celestial glory, leading Joseph heading west to avoid persecution.
 
-### Chapter II
+### Chapter II: 
 
 Chad then travels to Kirtland to see the church prospering. He witnesses the charisma of Joseph as he begins his tumultuous reign of polygamy. He pays his fair share of tithing, and endures an interview with the bishop to gain entry into the Kirtland Temple.
 
 He encounters the Angel Moroni within the Holy of Holies. "I'm sorry Chad, but our prophet is in another Temple," he says before Chad disembowels him with the Sword of Laban.
 
-### Chapter III
+### Chapter III: 
 
 Through the swamps, Chad heads to Nauvoo to find the Temple still under construction. He pulls some serious 007 shit and obtains his Patriarchal Blessing from Joseph Sr. Upon exploration of the unfinished Temple, he is confronted, and ultimately destroys The Three Nephites.
 
