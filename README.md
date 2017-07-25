@@ -1,6 +1,6 @@
 # ChadGasm
 <p align="center">
-    <img src="https://bigleaguez.com/images/chadGasmBG.png" />
+    <img src="https://bigleaguez.com/images/chadGasm.png" />
 </p>
 ChadGasm is a 2D exploration platformer set amidst the rising of the Smitty race. When young Joseph Smith Jr. gets visited by Elohim and our Lord and Savior, even Jesus Christ, Chad is awoken with a deep and mysterious thirst for revenge. He follows Joseph through the perils of early Mormonism, conquering his most powerful lackies - the Angel Moroni and the Three Nephites of old - while enscribing upon the sealed portion of the Golden Plates. Now is the time that this holy scripture, comparable to the Book of Mormon, shall be released upon the world.
 
