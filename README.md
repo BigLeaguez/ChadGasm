@@ -1,4 +1,3 @@
-# ChadGasm
 <p align="center">
     <img src="https://bigleaguez.com/images/chadGasm.png" />
 </p>
