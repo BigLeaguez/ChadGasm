@@ -18,7 +18,9 @@ He encounters the Angel Moroni within the Holy of Holies. "I'm sorry Chad, but o
 Through the swamps, Chad heads to Nauvoo to find the Temple still under construction. He pulls some serious 007 shit and obtains his Patriarchal Blessing from Joseph Sr. Upon exploration of the unfinished Temple, he is confronted, and ultimately destroys The Three Nephites.
 
 ### Chapter IV: Save Jesus Only
-
+<p align="center">
+    <img src="chapter_4.png" />
+</p>
 While Joseph fled, he was captured by the Gentiles and imprisoned at Carthage Jail. In hot pursuit, Chad witnesses the intense hatred between the Smitties and the Gentiles, which culminates at the Haun's Mill Massacre. Governor Boggs has a tiff with Porter Rockwell after he orders the Smitty extermination.
 
 Chad slaughters his way through the mighty mob surrounding the Carthage Jail. Joseph Jr. shoots at Chad as Hyrum and John Taylor take Chad on. Chad slaughters Hyrum, while Taylor is knocked out of the window after Chad's attacks are countered by the Pocketwatch. Chad slaughters Joseph in an intense battle as the mob outside is roaring with approval.
