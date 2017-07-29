@@ -13,11 +13,11 @@ Chad then travels to Kirtland to see the church prospering. He witnesses the cha
 
 He encounters the Angel Moroni within the Holy of Holies. "I'm sorry Chad, but our prophet is in another Temple," he says before Chad disembowels him with the Sword of Laban.
 
-### Chapter III: 
-
+<p align="center">
+    <img src="chapter_3.png" />
+</p>
 Through the swamps, Chad heads to Nauvoo to find the Temple still under construction. He pulls some serious 007 shit and obtains his Patriarchal Blessing from Joseph Sr. Upon exploration of the unfinished Temple, he is confronted, and ultimately destroys The Three Nephites.
 
-### Chapter IV: Save Jesus Only
 <p align="center">
     <img src="chapter_4.png" />
 </p>
