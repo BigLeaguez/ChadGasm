@@ -25,20 +25,23 @@ While Joseph fled, he was captured by the Gentiles and imprisoned at Carthage Ja
 
 Chad slaughters his way through the mighty mob surrounding the Carthage Jail. Joseph Jr. shoots at Chad as Hyrum and John Taylor take Chad on. Chad slaughters Hyrum, while Taylor is knocked out of the window after Chad's attacks are countered by the Pocketwatch. Chad slaughters Joseph in an intense battle as the mob outside is roaring with approval.
 
-### Chapter V: This is the Place
-
+<p align="center">
+    <img src="chapter_5.png" />
+</p>
 New No No: Brigham Young is prophet now, and Elohim has sent them west. Chad's loins explode in malicious fury, and he heads west. Travelling past the Pioneers through the bitter cold of winter, Chad loots and kills as he goes. He finds his way through the icy Rocky Mountains, fighting Porter Rockwell along the way.
 
 Upon arrival at Great Salt Lake City, he is furious to encounter fucking gay letters everywhere, while English is still the spoken language. He travels south to assist in the Mountain Meadows Massacre, and on his way he stumbles upon a large cache of Nephite Gold in Salem, what will be called the Dream Mine. He travels north to delay the construction of the SLC Temple, and slaughters Brigham Young.
 
-### Chapter VI: To the Moon and Back
-
+<p align="center">
+    <img src="chapter_6.png" />
+</p>
 Cain gives Chad a helpful tip: cause the second coming, and Chad can destroy the Godhead. Cain steals a Smitty's mission call to the Moon and sells it to Chad for a modest sum. Upon Chad's arrival, he slaughters Brigham Young, and using the power of the holy Melchizidek Priesthood, Chad is twinkled to the Moon.
 
 He encounters the Moon Quakers upon his arrival. They have built a massive Temple to their God as they dwindle in iniquity. Exploring their Temple, Chad fights the Quaker's prophet in their 'Holy of Holies', causing the Moon's surface to rupture and erupt with volcanic blood. Chad is funnelled through the tower directly ahead of this room, seeing the Moon's surface reddoning as he hurtles back to the Earth.
 
-### Chapter VII: The Latter Days
-
+<p align="center">
+    <img src="chapter_7.png" />
+</p>
 Salt Lake City circa 2017 is an evil place. With the moon blood-red, the stars falling from the sky, Cain getting the Priesthood, and the citizens of SLC engaging in disgusting debauchery, the Second Coming of Jesus Christ is nigh at hand indeed. The TBM Smitties are frantically hording their food and aggressively repenting of their iniquities.
 
 He explores City Creek to find a secret passageway to the underground network of SLC. It leads into the Temple, where he must destroy the angels of heaven as Elohim throws everything he has at him. He slaughters Thomas S. Monson to arrive at the pinnacle of human existence - a showdown with Elohim himself. After he does a number on him, Elohim disappears into a spacetime vortex. Chad is pulled in, and is exerted to Jerusalem circa 600 B.C. to see Lehi prophesying of its destruction.
