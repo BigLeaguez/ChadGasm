@@ -1,4 +1,7 @@
 Chad sprite dimensions (horizontal x vertical pixels)
 
-Running: 20x26<br />
-Smoking: 20x26
+Fall: 20x26<br />
+Jump: 20x26<br />
+Push: 20x26<br />
+Run: 20x26<br />
+Smoke: 20x26
