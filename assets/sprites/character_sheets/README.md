@@ -1,6 +1,9 @@
 All needed character sprites
 
 # Chad
+
+## Standard sheet
+(x 5 - 1 sheet for normal clothes, breastplate, temple clothes, temple garments and suit)
 - run
 - smoke
 - jump
@@ -20,6 +23,12 @@ All needed character sprites
 - swing with pocketwatch (hookshot)
 - sit and write (golden plates)
 - hold item (general)
+
+## Intro sheet
+- smoke (windy)
+
+## Fucking sheet
+- doggystyle
 
 Use drugs?
 
